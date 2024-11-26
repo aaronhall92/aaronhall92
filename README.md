@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aaronhall92
+- 👋 Hi, I’m Aaron!
 - I spend way too much time being a script kiddy
 - That's all you get for now :) Welcome!
 
